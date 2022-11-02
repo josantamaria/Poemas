@@ -1,4 +1,4 @@
-# Cita para recordar (en proceso)
+# Pensamientos aleatorios
 
 *Un día más atravesando aquella entrada,*
 
