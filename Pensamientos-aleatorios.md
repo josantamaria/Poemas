@@ -1,38 +1,30 @@
-# Pensamientos aleatorios
+# Llegando a clase
 
-*Un día más atravesando aquella entrada,*
+*Un día más cruzando aquella entrada,*
 
-*palpando la emoción ya casi olvidada de la primera vez que la crucé,* 
+*palpando la emoción ya casi olvidada de la primera vez,*
 
 *su arco me mira fijamente,*
 
 *ambos nos miramos a los ojos,*
 
-*siempre he pensado que se parece a la entrada de la casa del hobbit.*
+*siempre he pensado que parece la entrada a la casa de un hobbit.*
 
 *Mi mente divaga hasta encontrarse en un pasillo,*
 
-*abro al azar una de tantas puertas de pensamientos,*
+*abro al azar una de tantas puertas,*
 
 *recuerdo cuando ingresé a la universidad,*
 
-*a diario tenía una sensación de ausencia,*
+*¡pobre de mí! ni me imaginaba la complejidad de las cosas que viviría en este campus.*
 
-*la creatividad me llevaba lejos,*
-
-*imaginaba inventos maravillosos,*
-
-*y me cuestionaba su capacidad de materialización,*
-
-*sentía un vacio de conocimientos aplicados?*
-
-*rumbo al aula de clase donde nos forman,*
-
-*el agitar de una hoja me baja de mi nube,*
+*Rumbo al aula el sonido de una hoja agitándose me baja de mi nube,*
 
 *me pasan un panfleto,*
 
-*lo recibo y lo guardo en pozo del olvido,*
+*lo recibo y lo guardo,*
+
+*¿se quedará en el pozo del olvido?,*
 
 *miro los postes, los cables estirados,*
 
@@ -42,27 +34,20 @@
 
 *me veo preocupado,*
 
-*¿estoy en formación o en deformación?, pienso.*
+*¿estoy en formación o en deformación?*
 
 *No importa, nada importa,*
 
-*sólo el aire fresco,*
-
-*no el olor a meados del bus en el que venía,*
+*sólo el aire fresco y el sonido de los pájaros,*
 
 *llego a la entrada del edificio,*
 
 *veo mi reflejo en la puerta,*
 
-*recuerdo cómo me sentía,*
+*trato de recordar cómo me sentía,*
 
-*¿me estoy autogolpeando?*
+*pero sólo me quedará la sensación de haber olvidado algo*
 
-*no, estoy olvidando,*
+*y la certeza de que el pozo se está haciendo más grande.*
 
-*sólo me quedará el recuerdo,*
-
-*el pozo se está haciendo más grande.*
-
-> Autor: *Johan Sebastián Santamaría*
-
+> Autor: Johan Sebastián Santamaría
